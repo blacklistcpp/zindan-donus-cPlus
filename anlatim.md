@@ -1,1 +1,0 @@
-Anlatım dosyaları
